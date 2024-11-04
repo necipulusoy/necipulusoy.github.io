@@ -1,1 +1,0 @@
-# necipulusoy.github.io
